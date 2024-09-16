@@ -1,1 +1,1 @@
-You arrived in Ottawa, the capital city of Canada, in 2014. You successfully found your home stay. After a couple of days, you were used to the new life and excited for the future study adventure.
+You arrived in Ottawa, the capital city of Canada, in 2014. You successfully found your home stay. After a couple of days, you were used to the new life and excited for the future study adventure. No matter how many difficulties are in front of you, you know you will never give up.
